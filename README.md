@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Rajskoo
+- 👀 I’m interested in sports, programming and gaming!
+- 🌱 I’m currently learning HTML, CSS & JavaScript, Java
+- 📫 How to reach me: Instagram - @rajskoo
